@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Horn-knee
 - 👀 I’m interested in tralers and editing
-- 🌱 I’m currently learning codeing to help my friends to do a game
+- 🌱 I’m currently learning coding to help my friends to do a game
 - 💞️ I’m looking to collaborate on anything that i can help with
 - 📫 How to reach me just ask on this platform
-- 😄 Pronouns: he his hes
+- 😄 Pronouns: mega/tron
 - ⚡ Fun fact: im hornknee
 
 <!---
